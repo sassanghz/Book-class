@@ -1,4 +1,6 @@
 # Book-class
 
-this repo makes me so horny that want to sucks amir's dick non-stop until I chock to death :)
---  sassan ghazi (amir's lover)
+this repo makes me so horny that I want to suck <a href="https://github.com/rima1881">Amir</a>'s dick non-stop until I choke to death :)
+
+<br />
+--  sassan ghazi (<a href="https://github.com/rima1881">Amir</a>'s lover)
